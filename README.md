@@ -5,7 +5,7 @@
 - 📫 How to reach me Contact Me Via Email At: ddx5.media@gmail.com
 - 🏢 Im Currently Interested In  Working At A Computer Repair Company Or As An Office Computer Administarator/IT Repair.
 - 🏫 To REach My Goal Of IT Repair Or IT Administrator, I Will Need To Be Certified As A Repair Associate Or Technician.
-I Will Be Available For Trainee/Intern or Apprentice Positions In Bristol, UK At Around August 2021. Please Feel Free To Request Any Additional Information You May Need.
+I Will Be Available For Trainee/Intern or Apprentice Positions In Bristol, UK At Around August 2021. Please Feel Free To Request Any Additional Information You May Need By Using The Contact Email Above.
 
 <!---
 DDX5-DX12-Media/DDX5-DX12-Media is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
